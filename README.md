@@ -552,4 +552,35 @@ Mpikabary \ Ohabolana
 - Aina ity hoy Rainimanonja.
 - Ahoana no reraka am-pototry ny sompitra?
 - Ahoana izany? hoy Ramarenina, kanjo tsy mba nandre izy.  
-  
+- Ahitra no nanafintohina, ka ny tokonana no haetry!
+- Afo lavitra tsy azo amindroana.
+- Afoizo aho raiko tsy hiasa, hoy ny taim-piraka.
+- Afatotra maninton-tady, ampandehanina tsy afaka.
+- Afa-nenina hoatry ny manabady momba manala ratsiaina.
+- Afa-nenina hatrany an' ala lava, ka hatrany an' ala fohy.
+- Afa-draorao toy ny tany dilatra nahafaham-bato.
+- Afa-baraka toy ny vomanga an-tan`ana, fa ny akoho no avy mihehy.
+- Ady varotry ny mananontena, ka raikitra vao toran-kovitra.
+- Ady tsy tra-mampahery vava.
+- Ady tsy tra-maha-Rangahy.
+- Ady tsy ahi-mahatratra.
+- Ady lova, ady fananana, fa tsimbino ny fihavanana.
+- Ady amin' adala, ka ny hery no miala.
+- Adrisa tsy ampoky ny ahitra angaha aho no hifiaka izay antsoro maina.
+- Adin' ombalahin' ny mpianakavy : ny mahery tsy hobina ny resy tsy horakorahina.
+- Adin-kisoa no misy atolak' orona.
+- Adin-kisoa, ka samy mandoa vory ihany na ny resy na ny maharesy.
+- Adin-kisoa, ka poritra vao manasa vangy.
+- Adin-jamba ka izay vonona no afitsoka.
+- Adin' akoho vorom-bato : ny resy torotoro, ny mahery disadisaka.
+- Adidinao tsy namangy fa ny aretiko sitran-tsy miody.
+- Adala vady renianaka, ka mirakitra an-karon-doa-body.
+- Adalan-kaotra ka zary hazaka.
+- Adaladala toa zokim-bomanga : ny lehibe indray no mihosin-davenona.
+- Adaladala nahazo vorona, ka ny volom-bodiny no nongotana fa tsy ny elany.
+- Adaladala monina Ankaratra, ka tsy mahalala sahondra ho vaky.
+- Adaladala manam-bety, ka izay rehetra hita, venty avokoa.
+- Adaladala fiandry trano ka homam-barin-jaza.
+- firaisan-kina no hery
+
+    
