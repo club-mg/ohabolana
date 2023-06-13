@@ -402,3 +402,33 @@ Mpikabary \ Ohabolana
 - Aza mitaitay toy ny fitia tsy ho ela.
 - Ataovy fitian-dranon'erika:madini-pihavy fa mahatondra-drano.
 - Ataovy fitia voampo:mbola lavitra ihany dia ampoizina.
+- Mandreran-tena otran'ny alika manenjika môto
+- Voreke ty to, tsy ambara longo
+- Zafe magnana-draza: anara ndra mahilala, toroa ndra mahihitse
+- tsy ringitse ty be raza, tsy tsontsa ty managnila
+- Maha latsa ahy ty akoho tsy mitsako ro toro tay!
+- Valimasay, valiegne an-katea ; valibey, valiegne an-tahotse
+- Ndre miriorio ty tsiriry, anosim-borogne agne avao ty tane'e
+- Laron-tsarete ty havelo
+- Gorogoro ty fiay, tsy hay ty tsy tompo'é
+- "Fitia iray lainga ka aina no fetra; fitia lamban'akoho ka faty no hisarahana".
+- "Banga mihinan-kitoza, tsiro no notadiavina kanjo ny hivy no raraka".
+- mandry aloha tsy mirirana
+- Aza atao fitia rora-paraky,Tiana ihany ka tsy hatelina.
+- Aza atao toy ny fihavanam-bato ny fihavanana,fa ataovy toy fihavanan-kazo,ka raha tapaka ary azo hatoy.
+- ''Ny fiainana toy ny kodiaran-tsarety miodina dia miverina''
+- Tsy ambony tsy ambany ohatran'ny lohalik'alika
+- Raha zanaka tsy laitra hanarina, miteraha haita
+- Omby lahy nanonto vatolampy ka bory tandroka amin'ny adalany
+- zaodahy tsy mba havana
+- Tsa ny amalogna ho haza fa ny tagnana mifandray.
+- Tanindrazan'ilay jamba , ka izay diavin'ny tongotra tanindrazana avokoa
+- Nahoana no mihazakazaka tratry ny miadana
+- Ombilahy tsara feo, ka ny vavany no mahalafo azy
+- Bevohoka ratsian-kena ka manaikitra omby am-pitsanganana
+- Fon'i zalahy atakalo ny fon'i zavavy
+- Tsy mitsinjo ny farany ohatra ny andevo mahita fotsim-bary
+- "Manaratsy tena otrany omby latsika."
+- "Tsy ambony tsy ambany otrany loalik'alika."
+- Boka mangala-boatavo dia miandry ny tompony hanatatao.
+- Mampisalasala tahaka n vozon'akoho;hanina taolan,hariana hena.
