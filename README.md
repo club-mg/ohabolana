@@ -342,4 +342,33 @@ Mpikabary \ Ohabolana
 - Valala iray aza ifanapahana
 - Ny valala vôna agn'Isandra ko agnareo fa miady fagnendezana
 - Tsa metimety ny fo mpisy vary leky ny sonjo feno fatagna
-
+- Tsy misy tanora tsy nijoro fa rehefa antitra miady lohalika
+- Ny tarehy no ratsy ka ny volo no aolangolana
+- Mpamosavy miana-draharaha ka ny ao an-trano ihany no lanahana
+- Tambatambazina ny mpamosavy hamelomana anaka
+- Mpirahalahy mianala, ianao tokiko izaho tokinao
+- Mijery fahoriana toy ny boka mitaratra
+- Mifanaratsy an-toerana toy ny bokan'i Leagna
+- Maimaika toy ny boka hanambady
+- Boka misaka foza, ny natao handoatra koa vao maika namatratra
+- Manasa vahiny tsy avy hihinagna, sady vôky no afaka adidy
+- Tafita vao rendrika toy ny boka milomano
+- Tonga dia vonona ohatra ny totohondrim-boka
+- boka nangarom-pantsankana, tsy hetaheta fa ankaso
+- Vahiny vôky, tsy iharagna angady
+- Aza mba toy ny akoho fahanana: izay anipazana hanina endrehina daholo
+- akoholahy mikokokoko akohovavy,tsy hanina havoky fa voninahitra ifanomezana
+- vazivazy ray andalana,miandrovazo laividalana
+- mpajono no tompon'ny trondro,fa ny anglisy no tompon'ny tafondro
+- dedaka ohatra ny saka mangery tay totofona nefa, vody tsy voafitra
+- Matavy miady, ny mamely tsemboka, ny asiana tsemboka
+- Toy ny trondro voajono ny mpifoka sigara.Mahita tsirony kely izy,nefa maty avy eo.
+- Toy ny lel'afo be latsaka avy an-danitra ny fahatarana(@olona) ka sarotra vonoina nefa mampijaly
+- Tsy misy fitia herin-taona, fa fonenana no sisa
+- Aleo maty olo-malaina toy izay vaky vilany mianefitra
+- "Tandremo sao manao Akoholahin'ambohimangidy, ka domina vao maneno"
+- Asa atao ankira,vita tsy natao.
+- Tanala very sampy,miverina amin'ANDRIAMANITRA no mety
+- Zavatra tsy hay tsy ibitabitahana
+- Ny teny toy ny atody,raha foy manan'elatra
+- Andevo lahy mangery anjezika,fahavaratra aza miloloha ny tainy
