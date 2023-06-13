@@ -192,3 +192,34 @@ Mpikabary \ Ohabolana
 - Ombilahy miasa, ka izay manao ihany no voakaravasy
 - Ranomaso tsy mahatana aina
 - Ny havisavisana ny ratsy hiavian'ny soa
+- Boloky lahy homam-boatseva ka mamy ny etsy fy ny ery
+- Ny toky fitaka fa ny atao no hita
+- Raha Ny Lanitra Manga, Tsara Ny Andro
+- Na De Tsara Ny Mahafinaritra,tsy Mahasolo Ny Mahasoa.
+- Mbola Mahery Ny Fitiavana,nony Ny Sandry.
+- Aleo Maty Tampoka, Toy Izay Maty novonoina.
+- aleo maty amin'ny fahamarinana ,toy izay maty amin'ny fahadisoana.
+- Aleo Maty, Toy Izay Alan'olona
+- "Ny Manankarena Mety Mbola Hijaly,ary Ny Mahantra Mety Mbola Hifaly"
+- Aza Mijery Ny Haratsiany ,Fa Ny Hatsarany No Jerena.
+- Diso Fanantenana hoatran'ny Makorelina bevohoka, vola no notadiavina ka zaza no azo
+- " lambo nilomy akareny zao,gny aloha losotry gny afara ts atao sasy "
+- Magnaza soliky ambararay ko malaiky amboa miriorio
+- "Ny olombelona toy ny fandrin-drano,tsy misy avo sy iva"
+- Dedaka tonga rafozana ka trano bongo no asiana fandri-baratra
+- Sanganehana tahaka ny ondry nanambady alika, ny vody lisaka nefa ny zanaka tsy hanahaka.
+- "anambadian'kiterahana"
+- Aza atao fitia paraky ka atreho am-bava ihany
+- Raha ny rainy ve ny mitsako sy mihinana ny marikivy, dia avy eo ny zanany lasa madilo nify
+- Aza mahatoky tena ho be vavavody ka hitelina voana zavoka.
+- Ny fanambadiana tsy ferin'alika ka ho vitan-delaka, ary tsy tranon-kala ka ho vitan'ny vody
+- Ny teny toy ny toakan-jaodahy, kely tsy mahafa-po be mamoaka ny aty
+- Aza ny hakelin'ny masony no jerena, fa ny fandrosoana hoentiny
+- Tia ho deraina toa olotra, ka any anaty tay no manao akiletika
+- Aza ny ahakelin'ny maojany no jerena, fa ny haben'ny lohan-jaza havoakany
+- Tana mian'ala, ka tsy vahiny amin'ny lokon'ny voahary
+- Hadinoy ny lasa ary aza tsikeraina intsony ny lavenonany.
+- Ny hazo avo alan-drivotra.
+- Didimason'ny be lanonana, mitomany mahita soa
+- Ny fitiavana vary ahahy ka maina vao alanona
+
