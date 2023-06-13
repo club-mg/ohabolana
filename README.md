@@ -432,3 +432,35 @@ Mpikabary \ Ohabolana
 - "Tsy ambony tsy ambany otrany loalik'alika."
 - Boka mangala-boatavo dia miandry ny tompony hanatatao.
 - Mampisalasala tahaka n vozon'akoho;hanina taolan,hariana hena.
+- Mpifankatia mifanao ratsy ka izay mahavita be manenina
+- Banga mifanoroka, ka fotodela no farany
+- Aza mba matin-kenamaso ohatry ny sola mandrafozana, na marary aza ny loha ny vilany tsy maintsy lolohavina
+- aleo very solonify toy izay very solomaso,aleo very vady toy izay very zanaka
+- Ny hery tsy mahaleo ny fanahy.
+- Miankanjo vahoaka raha lohataona fa mihanja-pasika fahavaratra ohatra ny moron-dranomasin' Amborovy
+- aza manao toy ny boloky lahy homam-boatseva,ka mamy ny atsy sady fy ny eroa
+- « Soa lavo hahay hamindra,soa kenda hahay hitsako »
+- Raha hizara ihany, fitiavana zaraina ; raha hitondra ody ihany, fitiavana lanjaina ; raha amokatra ihany, fitiavana vokarina ; raha hikendry ny soa, ny fitiavana kendrena
+- Ny mihomehy lavo aza misy todiny maika fa ny mitsambiki-mikipy
+- Izay manenjika ny osa mbola henjehin'ny mahery
+- Aza manao masoandro avy any atsinanana : ny avo ihany no taingenana ; fa manaova masoandro avy andrefana : izay mivoha idirana avokoa
+- Tanora ratsy fihary, antitra vao ratsy laoka
+- "Miaka-midina toy vodim-panjaitra ny fianana."
+- "Matikambo ôtran'ny gisa tratra mangala-ketsa, ka izy mangalatra ndray no avo vava."
+- "Mitady sitrany ôtrany totozy terekanina nefa nasitriny."
+- "Kobobo voafandrika,ka ny mitsilailay no azoana aina."
+- "Samy manana ny fiainana,ka aza mialina ny vitako fa manaova mba ho itako."
+- "Aza manenjika ahy ry fahavaloko,fa na lavo aza ahy mbola iarina ihany."
+- Fotsy volo tsy mahay mikabary ka mipetraka atsangan'ny olona, mitsangana apetraky ny olona.
+- Ny fo miray no mandresy ny sakana.
+- Mifanaratsy apitoerana, oatrany boka mitanin'andro
+- Ny fanambadiana toy ny toko-kena,raha tsy sendran'ny trafony dia sendran'ny taolany
+- Aza manao ratsy,fa ny tsara dia manamarina ny tena
+- Aza miandry ny zaza mihoso-tay vao hihazakazaka hividy taty
+- Ny soa tsy ambara havana, atambo miditra ny trano
+- antilahy nangalatra ampango,hialaka lazan-draha
+- Tolona am-batolampy ny fiainana ka izay tsy mitandrina vaky loha.
+- Aza atao fihavanan'alika ka isaky ny mifankahita dia mifanasavangy.
+- Be hambo toa rambon'osy ny lanitra tsy ianjeran no tohanana nefa ny vody lanin'ny moka tsy hita.
+
+  
