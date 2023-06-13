@@ -72,4 +72,34 @@ Mpikabary \ Ohabolana
 - Maimaim-boantsilo ka mihinan-tsy mamafa
 - Ny teny toy ny voantsilo tsy afa-day: mamy fa sarotra entina
 - Tsy ahoanao inona izay vavan'olona any, zory andeha amin'ny fahamarinana hatrany ny fiainanao dia ampy
+- Ny reny tsy mahafoy zanaka fa ny zanaka mahafoy reny. ka raha lasa reny hianao ?
+- tafondro izany hoy ny feon'ilay jamba voatsapa
+- Zanak'ondry mifatotra amoro-ketsa, fararanon'ny maso fa tsy fararanon'ny kibo.
+- akanga mitindroka ambony vato, maty ny tendany.
+- Ratsy tarehy be vody tsy matahotra ny ho very zara
+- ratsy tarehy miady lehilahy tsy matahotra ny ho very anjara
+- Njola mangata-bady, ka ny rafozana no voatilitily
+- Aleo misoroka toa izay sorohina
+- Mahay roa hoatra ny lelan'omby,ka sandy any ambava no any ambody
+- Aza te ho deraina toy ny saka; ny tay totofana nefa ny vody tsy mifitra
+- Aza atao fitia varavarana; tiana ihany nefa atositosika
+- Velona iray fiangonana; maty iray paradisa
+- hala mamelatra trano am-baravarana: tsy mibahana ahy androso fa mamandrika sakafony
+- "Arahabarahabao ny olona , fa tsy fantatra izay horafozanina "
+- velona iray trano,maty iray fasana
+- Ny lesoka lesona, fa so ianao miesona
+- Ny fahafinaretana no tiana ho azo, ka izay nasaina atao lazaina fa mety.
+- Manalasala toy ny kamboty maditra, tiavina maniratsira ankalaina tsy misy mpihantra
+- Aza mba sarotra hiaraha-monina otran'ny Rafozan-tsarotiny
+- Ny fitiavana dia toy ny ody mahajamba
+- zavatra tsy ampy zaraina ka mifandefitra no mahatsara fihavanana
+- Ny fanatenana toy ny gitara vao namboarina ka raha maneno dia maravoravo.
+- Ny tsipelina diso toy ny akotry am-bari-masaka ka rehefa voatsako mahasosotra ihany.
+- aza manao olona be tsy miteny nefa mora tezitra
+- Zay Miala Moramora Tsy Midika Hoe Resy,fa Fagnajana Mba Tsy Hisy Adiady
+- Ataovy Hanatra Ho Anao Gne Vita
+- Na Miaina Eo Amin'ny Fotoana Sarotra Aza, Dia Miezaha Ihany Mba Ho Tafita
+- Ny Fahasambarana Eto An_tany Dia Mandalo Agnatine Fotoana Vitsy
+- Ataovy Zavatra Ho Anao Ny Zava_dratsy Teo Aloha, Mba Hanatsarana Ny Hoavy
+- Manaova Zavatra Mba Hitiavan'olona Anao
 - 
