@@ -222,4 +222,33 @@ Mpikabary \ Ohabolana
 - Ny hazo avo alan-drivotra.
 - Didimason'ny be lanonana, mitomany mahita soa
 - Ny fitiavana vary ahahy ka maina vao alanona
-
+- Manebaka ny hafa ho voretra hay zatra mpanao sasa-piso
+- Mitrosa etsy, mitrosa eroa, nony hamerim-bola koa mifararemotra
+- Masaka teren' ny setroka toy ny akondro naotrika
+- Ny tany no tsy asian-dratsy, ny iverenana
+- Manao azy ho toy ilay vinanto mahay mandrafitra,ka mitondra hazo mivilana avy any an'ala.
+- Kapila hinanana tsy hangerezana
+- Ny soa atao ilevenam-bola, fa ny ratsy atao loza mihantona
+- Maimaika toy ny boka hanambady ka ny tanana hasiam-peratra aza tsy misy.
+- Raha maty aho, matesa rahavako; raha maty rahavako, matesa ny omby.
+- Fadio ny manao fatin-dalitra, ka maty mitety ny ratsy; fa manaova fatin-tantely, ka maty mamela mamy ho an'ny rehetra.
+- Mazoto kamo velona sahala amin'ny akoholahy, mba mifoha maraim-be ihany fa mijanona eo amorom-patana.
+- Tsimbotry niaraka ihany ka adrisa indray vô hifanary?
+- Matoa magneno misy raha mankarary , matoa mangina misy raha maha mahana .
+- Oento any refa tsy foy sao hamoizako ny aiko.
+- Indeso any lafa tsy foy, tsino hamoizako ty aiko.
+- Ny fitiavana toy ny afo,mandoro raha kasihana,ary manafana raha sendra andro mangatsika
+- Sira voanjo ny agnatse, ka ijay vaky ro mamy
+- Aleo tara toy izay tsy misy.
+- Fizaran-kena maty jiro, vintana sisa no andrasana.
+- Noana manontany lera, voky manontany ondana.
+- Aleo miandry rafozan-doza toy izay miandry hani-masaka..
+- "Toy ny ravi-maitso nolalovan'ny fanday ny fitiavantsika roa"
+- in-telo misara-bady,impito rava harena.
+- toy ny rano ampasika ny zaza,ka mora ahitsy.
+- Tiako ny tenako,fa ianao mbola tiako lavitra
+- Mandry aloha tsy mirirana.
+- "tsy misy olona tsy misy aingam- panahy fa misy olona biby"
+- Tsy lany lainga toy ny mpampirafy
+- Aza manana fitiavana vita sinoa.
+- Aleo misoroka,toy izay sorohina.
