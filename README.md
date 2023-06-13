@@ -252,3 +252,63 @@ Mpikabary \ Ohabolana
 - Tsy lany lainga toy ny mpampirafy
 - Aza manana fitiavana vita sinoa.
 - Aleo misoroka,toy izay sorohina.
+- Ny làlam-be no tsy asian-dratsy, ny hiverenana
+- Mpandihy lava volo-kelika, mahay manan-tsiny tsy mahay manan-tsiny.
+- VITA HO AZY TAHAKA NY KARATR'I NAIVO;IZY NANDOA VOLA ,NY FANJAKANA KOA TSY MITAKY
+- kakazo maro sefaka tsy ilatsaha magnaniky
+- saro-tadiavina hoatran'ny aretin-jaza ny marina
+- Izay tsy milalao sain-kanina, sakaiza-bilany vy kendakorona
+- Aza miveraka fa asio izay miahaka
+- Raha razana tsy hitahy mifohaza iady vomanga
+- Aza miady vitana amin'ny akoho.
+- Tahaka ny mprivaro-tantely, mitelin-drora anilan'ny mamy
+- Ny katsaka no manao baby telo, ny tany aniriany no lonaka
+- Mpanjaka mahihitra,maty alohan'ny andevony
+- Aleo manenina tsy nahazo toy izay manenina nahazo.
+- Ny vontom-pon'ny te-ho velona tsy mitovy amin'ny vontom-pon'ny te-hamono.
+- Solika raraka an-tany, tsy tonga mba hamelona fa hamono.
+- Aza atao toy ny fihavanam-bato , fa raha tapaka tsy azo hatoy
+- NY tsa tea tsa hilaza soa
+- Henan' ny mpitsoka mozika, ataovy tsara zara fa vidim-pofon' aina .
+- Aleo mizara toy izay omena
+- Toko tapaka,vilany mitongilana;izay tsy mety arenina.
+- Fitia toko-kena ka samy mahazo ny anjarany
+- manakarena mahihatra tsy ampy tsoka ka maty alohan`ny ombiny
+- Fivoriana alika ka horokoro-body no betsaka
+- tafita vao rendrika toa ny boka miapita rano
+- ny saka sy ny alika miady ka miady hatramin'ny adala , mpvady miady ko ny zaza ao an trano no darohana
+- Homana, manajaria
+- Te hoderaina ohatra ny saka ka rora no anasana tava
+- Ny fandrantoana fahendrena dia tahaka ny fikororohana vary amin'ny fararano, ka izay mahay manavaka ny tsiparifary amin'ny vary no hahazo be.
+- Izay mahafaty ka aretina
+- Aza ny lohasaha mangina no jerena, fa Andriamanitra ao antampon'ny loha
+- Rava tokantrano rava harena.
+- Manary vady tanora , manome ny tsy manana
+- Antitra vao tia sangy sahala amin'ny tsipolotra antitra.
+- Ny teny toy ny kitoza, tsakona ahitana fy
+- Ny amalona aza hono mba miady nefa samy malama, maika fa isika olombelona.
+- Ny mananasy no boka mitaingin-tseza; fa ny olona boka kosa tsy mba hahazo seza.
+- Tsim-pary amin'ny kolony, tsy ho lany hamamy.
+- Basy atifikava arangaranga mialoha
+- Aza malahelo voalavo maty fa mbola be ny any an-tsaha
+- Aza manontany basy amin'ny Anglisy
+- Ny sakafo masaka tsa mba manan-tompo
+- voalohan'atody ka soritana arina
+- Tsa misy rano tsa te ho agn'andreagna fa ny lahatsa ro iaviana agn'andolagna
+- Ny adalan'olona ihomehezana fa ny adalan'ny tena tafian-damba
+- Adala nomen-tanan'ondry ka na soloina hofany aza tsy mety
+- Ny erikerika ro mahatondra-drano
+- Ny mijekijeky ro avy lavitsa
+- Ny anjara tsa mba miolaka
+- Aza atao fitia an-tendro-molotra fa ataovy fitia latsa-paka
+- Aza atao fihavanam-bato fa raha tapaka tsy azo atohy intsony
+- Ranobe tsy tetezin-doha
+- Ny fanambadiana lamban'akoho ka faty no isarahana
+- Aza mitari-bady tsy lasam-bodiondry
+- Tsy midera vady mahay mandihy fa ao ny sandriny hilaza azy
+- Manary vady tanora ka manome zara ny hafa
+- Mihena an-toerana toy ny fen'antitra
+- Raha olona iray no tsy tia, mitotoa koba hatavy
+- Rafotsibe leom-boananana ka tsy te hahita zava-boribory mainty
+- Rafotsibe leon-tsokina ka tsy te hahita vodi-kifafa
+- Bangon-takatra ka indray mikopaka dia vita
