@@ -11,6 +11,19 @@ Contents :
 
 ## Uncategorized
 
+
+- Ny vilany no vaky, ny mpahandro no nimonjomonjo
+- Ny mita be tsy lanin'ny mamba
+- Asa vadi-drano tsy vita raha tsy ifanakonana
+- Aleo ratsy tarehy fa tsara fanahy, toy izay tsara tarehy fa ratsy fanahy
+- Ny olombelona toy ny omby, indray mandry fa tsy indray mifoha
+- Ny olombelona tsy maina, tsy lena
+- Aza mandraraka ilo mby an-doha
+- Tanora ratsy fihary ka maka kitay fotsy volo
+- Lohalika sy laferana, izay mandefitra no mandina
+- Aza ny lohasaha mangina no jerena fa Andriamanitra an-tampon'ny loha
+ 
+
 - Hataka @andriana, mahazo "Misaotra tompoko", tsy mahazo "Misaotra tompoko"
 - Rafotsibe mangataka omby: raha mahazo, manan-karena indray andro; tsy mahazo, ny omby angaha fangataka?
 - Boka mangata-pitahiana,zanahary hanome no anombanana totohondry
@@ -1510,3 +1523,33 @@ Contents :
 - Aza manantena taintsokina ka tsy mety mihaza
 - Manantena lambo miakatra ve ka tsy mety midina an’ala?
 
+## Ohabolana Mampihomehy
+
+- Mihitatra sahala amin'ny sima misioka
+- Bitsibitsiky ny lava nify, ny lavitra indray no maheno aloha
+- Bingo manao matso
+- Mifanaratsy an-toerana toy ny boka mitanin'andro
+- Mihena an toerana toa fen'antitra
+- Toy ny njola mitaky trosa, vao eny am bavahady dia efa mangarika
+- Ikala kely mizaha lanonana, efa mody vao hitan'ny olona
+- Ikala adala nomen dasy, herin'andro mitsinjaka ihany
+- Rehefa afaka ny tsiny (hoy ny mpikabary) dia maivamaivana ny vava hoy ilay be molotra avy mandrora paraky
+- Tsy mba voaloboka antitra izahay ka hiketrona am pijoroana fa tsaramasom bazaha ka tsy midola raha tsy eny an-davarangana (hoy ny olona mirehareha)
+- Mianjonanjona ohatran'ny Sihanaka voadakan'ny osy
+- Miteronterona toy ny Betsileo vita batisa
+- Betsimisaraka mitaingina bicyclette, tsy mijanona raha tsy any an dranomasina
+- Tsy adalan dRakamisy (anarana betsileo) no tsy nanambadiany Ambaniandro
+- Betsileo tsa te (tia) hena?
+- Raha razana tsy hitahy, fohazy hihady vomanga
+- Zazavavy soa petaka orona, voatondro iray no tsininy
+- Mitsako tsy re ka kenda vao "dony aho ranotra” !
+- Ny maso no tia jerijery, ka ny fo no mahozo raki-dratsy
+- Ny adalan'ny hafa tondrointanana fany an'ny tena afenimpenina.
+- Toy ny tongotra vakivaky, sady marary no mahamenatra
+- Tsy tia,tsy tia ka tsy manidy trano !
+- Arahabao ihany izay hita, fa tsy fantatra izay ho rafozana!
+- Bangaomen-taolana, ny tanana mandray, ny fo mieritreritra!
+- Raha ny kapoka no maha-hendry, dia ny omby no hendry aloha !
+- Miavontsy feno toy ny maloto entindriaka
+- Mitsikitsiky na mihomehy toa ny banga
+- Mandehana dieny malaina fa rehefa mazoto tsy afaka intsony
