@@ -42,3 +42,34 @@ Mpikabary \ Ohabolana
 - Ahandro mahia mila menaka, raha matsatso mila sira, raha tsara tsy mila dera.
 - Ny tena fitiavana tsy sento ka hoe miserana fotsiny ihany.
 - Ny naman-kanírina manjàry havana, ny naman-kandrendrika tonga fahavalo.
+- Raha ny lalana no tian-ko tody, tsy jerin'ny mpanesy araiky fa jeriny omban'izay entiny.
+- Ny te hanana tsy mahaleo ny ambinina
+- Tranoben'Antananarivo ka izay mahavita aloha no manenina.
+- Raha tsy te-hanenina na hitomany,manaova ny marina hatrany.
+- Ny lafatra tsy misy fa ny ezaka no atao
+- Rafotsibe mitarano,izay mahasoa ataon'Andriamanitra
+- Manaotao foana toa an'Andriamanitra nanao ny voay
+- Vovoan'Amboa,tsy hery fa tahotra
+- Fihavanana tsy tiko ho rava no tsy anaovako trosa aminao
+- Tsakaranon'i Arivo ka aleo hilamina dia misesy
+- Aza matoky fahaizana fa,misy ny vitana sy ny anjara
+- ny anambadian-kiterahana, ny iterahana hodimby
+- Ny ahiahy tsy ihavanana
+- Tahaka ny dalle-n'Andavamamba, ririnina fitoeram-boalavo, fahavaratra fitoeram-pozaorana
+- Marary mahidy vava, very taniky aody.
+- Raporapon'ny lentiky mila vonjy.
+- ratsy tarehy be vody ,voninahitra ho an'ny fandriana fa henatra hoan'ny fiaraha-monina
+- Aza manao toy Ikala mpaka vadin' olona, mambabo ivelany fa devoly fanahy
+- Bingo manao matso ka misalovana ny anjaran' ny sasany.
+- Ratsy vintana toy ny PÔ, amanizana vao velon-kira
+- Ataovy toy ny fitiavan'ny vitsika, ny entina mavesatra nefa ny tena bitika
+- Vazo mitovy ihany va dia hita rano
+- Mpanjifan'ny RATP sy ny SNCF hono ka vita vakisiny amin'ny fahatarana.
+- Ny ela no maharay roa
+- Aza mihomehy amboa mahia mba tsy hibozan'ny volony
+- Ny lefitra tsy amin-tody mampiray vahana ny fandeferana
+- Ny afo lavitra tsy mba azo amindroana (Ohabolana betsileo)
+- Maimaim-boantsilo ka mihinan-tsy mamafa
+- Ny teny toy ny voantsilo tsy afa-day: mamy fa sarotra entina
+- Tsy ahoanao inona izay vavan'olona any, zory andeha amin'ny fahamarinana hatrany ny fiainanao dia ampy
+- 
