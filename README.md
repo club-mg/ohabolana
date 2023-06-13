@@ -85,7 +85,7 @@ Mpikabary \ Ohabolana
 - Aza atao fitia varavarana; tiana ihany nefa atositosika
 - Velona iray fiangonana; maty iray paradisa
 - hala mamelatra trano am-baravarana: tsy mibahana ahy androso fa mamandrika sakafony
-- "Arahabarahabao ny olona , fa tsy fantatra izay horafozanina "
+- Arahabarahabao ny olona , fa tsy fantatra izay horafozanina
 - velona iray trano,maty iray fasana
 - Ny lesoka lesona, fa so ianao miesona
 - Ny fahafinaretana no tiana ho azo, ka izay nasaina atao lazaina fa mety.
@@ -102,4 +102,33 @@ Mpikabary \ Ohabolana
 - Ny Fahasambarana Eto An_tany Dia Mandalo Agnatine Fotoana Vitsy
 - Ataovy Zavatra Ho Anao Ny Zava_dratsy Teo Aloha, Mba Hanatsarana Ny Hoavy
 - Manaova Zavatra Mba Hitiavan'olona Anao
-- 
+- Aleo Manao Zavatra Vokatra Ny Fo Misy Tanjona Atao,toy Izay Manaonao Fotsiny Tsisy Dikany
+- Ny Alahelon'ny Olona Iray ,misy Vokany Eo Amin'ny Fiainanao
+- aleo maty ,toy izay mijaly
+- Anjely Tarehy Fa Devoly Fanahy
+- Bemolotra mihina-koba ka,tafiaraka samy matevina
+- Kamo be baiko, manafitohina ny efa manao
+- Mpamosavy milaza tia fahavalony, hay mila tamby fahafatesana
+- hala mamelatra fandrika am-baravarana, tsy mibahana ahy tsy hiditra fa mamandrika moka.
+- Zafimbahy vita asa: a-Moramanga magnala kaka.
+- ny teny toy ny rafbiriky na dia tsara rafitra tsy ilaozany zay tapaka
+- toko tapaka vilany mitongilana na be na kely fa izay mahita ny marina mba milazà
+- teny zato , kabary arivo fa iray iany no marina
+- Akoho mitsiri-bilany, mijery ny fasana ilevenany
+- Manalasala toy ny akoholahy lava sanga, arahabain-tsy andriana avela toa misatroka jaky
+- Manao fisotro labiera na be kibo any ka mandroatra atraminy tay
+- Bezano mihary: ny aomby raika ihany.
+- Ny fahavoazana dia mahafaoka henatra
+- ny henatra tsy ahavitan-draharaha
+- Torabato avy any andanitra ny fahafatesana , ka tsy fantatra izay ho latsahany.
+- Aza manao tohiny Hao andoha,loloavina nefa manaikitra
+- Ny velona arahim-potsibary ,fa ny maty arahin-damba mena.
+- Ny tselatra atosiky ny varatra, ny orana atosiky ny rahona,fa ny olona atosikiny fitiavana.
+- ny vary tsy fotsy adidiny laona, ny zazaka adala adidiny Ray aman-dReny
+- Ny vary tsy masaka adidiny afo, ny lakan-tsitody adidiny fivoy.
+- Ny mahay vava tsisy hery
+- Aza manao lalitra tsy ho vorona,fa ny kely ihany no ho lasa lehibe
+- Ny mpanao pôlitika hono tahaka ny hao, izy lolohavina indray no manaikitra
+- Ny anaran-dray tsa afify
+- Ny tarana-by tsa mba mandavenona
+- Ny valala misy, ny mpilaza koa mahay
