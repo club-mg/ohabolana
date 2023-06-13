@@ -372,3 +372,33 @@ Mpikabary \ Ohabolana
 - Zavatra tsy hay tsy ibitabitahana
 - Ny teny toy ny atody,raha foy manan'elatra
 - Andevo lahy mangery anjezika,fahavaratra aza miloloha ny tainy
+- Tsy mahalala ny tata-body ka mifitra amin'ny antsy maranitra !
+- "Maniraka zaza tsy nateraka mahabe vatan'orona"
+- "Andrakandrana no nampihinan~tay ny kisoa"
+- "Manalasala toin'ny mamely renin'kisoa, hitsanganana iva loatra, andoalihana avo loatra"
+- Behivoka miara-matory ka mihorirana indray vao maika tery
+- Hoy ny Ntaolo hoe" Ny lainga toy ny salaka ka ny tompony ihany no fatorany"
+- Lanonana ity fa ny amboa no ambeno
+- Aza sarotiavina tahaka ny pô ka amanizana vao velon-kira
+- "tano ny hazo fa sarotra ny mila"
+- Hoy ny Ntaolo hoe "Aza manantena hery fa ny lahatra tsy azo rombahina"
+- Hovalahy maty zanaka,ka sira no hamoizana azy
+- Tody mbola ho ela ve no tsy hanaovan-dratsy?
+- NY VOLA FITADY,NY AINA FANARY
+- Teny zato;kabary arivo fa tokana ihany no marina
+- Akoho kely miambozona tady mahazaka ka mitondra ny tsy heran'ny aina.
+- Aza atao fitia varavarana,tiana fa hatositosika
+- Kely be raharaha toa fangaraka ka ny trano atao, ny feta taomina, ny farara tsofina
+- Toerana nahavokisana tsihy hitoerana ela
+- Bevata fahatany ohatra ny voatavo antay
+- Atao fitiavana trondro sady ompiana no akana taranaka
+- Mba ho tahaka ny rano sy vary ka an-tsaha tsy mifanary, an-tanànana tsy mifandaho.
+- Aza kely fisian-kavana loatra.
+- Aza atao fihavanam-bato, ka raha tapaka, tsy azo atohy; fa ataovy fihavanan-dansy,ka raha madilana,azo tohizana.
+- Aza manao fitia mifono avona.
+- Aza manasakaiza vahiny
+- Aza manao fihavana-molotra:tezitra vao mifanatona.
+- Aza manao fitia rano trambo:be fihavy, ka mora lasa.
+- Aza mitaitay toy ny fitia tsy ho ela.
+- Ataovy fitian-dranon'erika:madini-pihavy fa mahatondra-drano.
+- Ataovy fitia voampo:mbola lavitra ihany dia ampoizina.
