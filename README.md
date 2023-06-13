@@ -522,5 +522,34 @@ Mpikabary \ Ohabolana
 - Tandrimorimo ty maola mahavoa ty mahihitsy
 - Tsy atoro fa hita hoe bay an-kandry
 - Ka miola soafitaky hoe hỳ, ka magnehi-dolohazy hoe hao
-  
+- Tsongò fonao, bideno ty an'olo; marary anao, manilok'olo
+- Roso aloha ze meky
+- Kibaroa tsy atrosa
+- Ka manao tana mahay vata
+- Safàn'olobe renin-tantely: tsy mipetraky laha tsy an-dravinkazo
+- Fa tsy any tsika hoy Retsotake
+- Vola volambolagny, hena mandrekitsy an-kỳ; ndre atao mamy gny tantely, lakolako gny sỳ
+- Tanora izaho fotoana tsy tohiny tanora fahiny
+- Lainga toahiny salaka ny tompony ihany afatony
+- Didifolo Andriamanitra tokony ekena sy hakatoavina fa didi olombelona tokony hifanaraka didi Andriamanitra
+- Ny tanora matanjaka fa ny antitra osa
+- Antananarivo tsy voatery ifakafatatra daholo afatsy mifanerasera matetika
+- Ny lahy tsy mba vavy ny vavy tsy mba lahy
+- Ny lahy samy lahy na vavy samy vavy tsy mahazo miray ara nofo na mpiavana na mpiraitampoha fa ny mpivady ihany no afaka miray aranofo vita mariazy sy vita soratra arampanjakana
+- Ny tody tsy misy fa ny atao no miverina ka mitandrema
+- Lasa ny mpivaro-tena vao manangona fimailo.
+- Zavatra hahafaty tsy mba ambara vady.
+- Ataovy tsy rem-bitsiky tsy ren-kalalao.
+- Ny vola miteraka havana fa ny havana mandany vola.
+- Mangarik'olona tsy fidiny toy ny sima sy njola.
+- Raha torimaso tsy taitran'ny amponga, fohazy ihany sao nodimandry.
+- Zaza mivalana am-pandriana, mahavoa Ray mahavoa Reny.
+- Ny fanambadiana tahaka ny jiafotsy vao tsy araha kasokasoka tonta tsy arahan-dromoromo
+- Aingaingao rey volom-body fa ny elatra hanidinana no tsy misy.
+- Aingaingain-kazera sahala amin' ny famono vato.
+- Adala ny manina ka ny tompo-bady no hafarana.
+- Aingaingain-kazera, toy ny fively fandraka.
+- Aina ity hoy Rainimanonja.
+- Ahoana no reraka am-pototry ny sompitra?
+- Ahoana izany? hoy Ramarenina, kanjo tsy mba nandre izy.  
   
