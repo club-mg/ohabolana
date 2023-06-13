@@ -582,5 +582,335 @@ Mpikabary \ Ohabolana
 - Adaladala manam-bety, ka izay rehetra hita, venty avokoa.
 - Adaladala fiandry trano ka homam-barin-jaza.
 - firaisan-kina no hery
+- ny fitiavana toy ny ketsa ka mora afindrafindra
+- Andalovako mora ny ampitso satria ny androany dia ny lasa ihany no miverina.
+- aleo tantsaha mijoro, toy izay mpanankarena mandohalika
+- Ratsy tarehy be vody, mivalapatra vao mahagaga
+- Tranoben'Antananarivo ka izay vita aloha no manenina
+- Vita ho azy sahala amin'ny karatr'i Naivo, ny fanjakàna tsy nitaky, i Naivo tsy nanatitra.
+- Sola mindran-kety ka mahabe eritreritra
+- Ombilahy be vozona ka tsy mifidy tany hiadiana.
+- Ny ditra mameno tanana fa ny nenina mamarina an-kady
+- vato atora-pody ka tsy matahotra izay vary hihintsana
+- Aleo maty anio toy izay maty androany,ny fahafatesana tsy heloka fa jarahetra
+- Mena mason'ny nahiny tahaka ny vivy nanitrika.
+- Aleo kijeja mifampikasoka amin'ahitra toy izay adrisa manampatra elatra mandao.
+- aleo manda tsy handeha toy izay manaiky nefa tsy ho lasa
+- NY HERY TSY MALEHONY FANAHY. NY FIRAISAKINA NO HERY.
+- ALEO MIANATRA TSARA HAJANY OLONA TAFITA FIANARANA. TOHIZAY TSY MIANATRA ANEFA AMBAKANY OLONA IZAY TAFITA FIANARANA
+- MANAOVA NY SOA DIENY MBOLA VELON'AINA
+- Izay mahakolokolo no manana ny tsara(ce qui soigne possèdera le bien)
+- FANAMBADIANA TSIRAIKITRA TSY ATAO MAHA RATSY FIAVANANA.
+- Andevolahy nahazo fiandrianana ka lanjao aho anio tontolo andro.
+- Tsy misy zavan-tsy zaka mihoatra ny fanambadian-tery setra.
+- "Voanemba mipitika anjoro, tsy very fa maka ny toerany"
+- Tery omby ririnina, atao izay tsy hahabotry ny zanany, kendrena izay tsy hampahia ny reniny.
+- Adala manan-janaka ka ny isany avy no anontaniana olona.
+- Hendry anaty toy ny samoina fa rehefa mivoaka afatotry ny sasany
+- "Aleo mihinan-kely toy izay mandry fotsy"
+- aza matahotra ny halavan'ny tohatra fa manahia ny tsy fahasahianao hiakatra
+- mety hanao fahadisoana ny olona fa tsy midika izany fa olon-dratsy izy
+- Zakao amim-pitiavana toy ny alahelon'akoho ny ezaka izay atao, fa na voahosihosy aza ny lamosina, na voatsaingotsaingoka aza ny loha, ny adidy amin'ny taranaka mba vita ihany.
+- Boka nangala-kitoza, nanala kàka vao ady mamay.
+- Sepotry ny nataony toy ny totozikely nangetotra an-davenina
+- Aviavy toy ny amany vao maraina.
+- Kely ila nagala-badin'olona, nahazo ihany fa tsy afa-nitsoaka!
+- "fitia tsy tanteraka tsy maharatsy fihavanana"
+- "Tsy misy adala hoatran'ny kisoa fa rehefa mivoaka be tondromolotra",adala
+- Haren-dany tsy manitra intsony
+- Mitovy tanjaka otran ny tongotr alika ka tsy fantatra izay tena mahery.
+- "Faly sahirana toin'ny akoho kely notsipazana fotsimbary"
+- Ankatso sy Ambohidepona hono no mifankahita fa tsy mba miresaka, mifampitazana tsy mba mitafa, ny maraina mifampilongilongy ny hariva mifanakona aloka.
+- Na ho lasa aza moa ny ririnina , ny zaza tsy teraka tsy azo foraina.
+- Fohy mamonjy lanonana ka rehefa rava vao hita.
+- "Izay nakamban'Andriamanitra aoka tsy ho sarahin'olombelona"
+- Lanilany fahatany ohatran'ny volan'ny mpisotro toaka
+- "Naniry zaza ka tera_dahy"
+- "Zaza nilaozan_tsakaiza ka milalao vovoka irery"
+- Mpamosavy malemy ka ny ao an_trano indray no haripaka
+- "Tsara ny roa nohon'ny iray, ny hevitry ny maro mahataka_davitra"
+- "Ny fikasana antsika olombelona fa ny lahatra dia an'Andriamanitra"
+- "Andriamanitra no nanome fa i Balita no tsy nambibina"
+- "Loharano tsy tetezin_doha, ny mita be tsy lanin'ny mamba"
+- "Izay mahavangivangy tia havana, ny hava_tiana tsy vangia_matetika"
+- Toy ny ondry mirao-bilona ka izay tratry ny tady no anaranana fo
+- Ataovy toy ny volana ny fiarahabana ka raha tsy fenomanana tsy ajanona
+- "Boka misaka foza ka vao mainka manesika azy ao an_davaka"
+- "Tanora ratsy fihary, antitra vao ratsy laoka"
+- "Firaisan_kina no hery, izay mitambatra vato ary izay misaraka fasika"
+- "Tsy misy manana ny ampy fa sambatra izay mifanampy"
+- Tapa-tenda ohatra ny mpampiasa jiro tsy nahaloa vola.
+- Mpiatsara ivelatsihy mody madio ohatra ny ranon'i Masay.
+- Andriana mifamofo amin'andevo ka maniry midina toa volo-kelika
+- Amboa mivahiny an-tany tsy fantatra, tonga tsy misy mpitsena, lasa tsy misy mpanatitra, atoandro tsy misy mpangoraka, harivariva misy mitoraka.
+- Aim-bery foana ohatra ny mitory mpanam-boly amin'ny fitsarana.
+- Saro-tiavina ohatran'ny pô, amanizana vao velon-kira
+- Aleo ratsy feno fahatsarana toy izay tsara feno faharatsiana.
+- ny lainga toy ny salaka n tompony ihany no afatony
+- Midonaka tsy narehitra toy ny fakon' Andralanitra
+- Midonaka tsisy nandrehitra toy ny fakon' Andralanitra
+- Vendrana mihoaka,kenda vomanga nasesiky ny tanany.
+- Zavavy mandrovi-tsihy lamban-DRafy ka irefarefana.
+- Efa tsara vina (études) ohatran'ny fasan'ny mpamosavy.
+- Ny fandikan-dalàna rom-boay , zay masaky homa
+- "Rehefa mety ny atao, na ny sahobakaka aza mampidi-drano an-tatatra, saingy rehefa tsy mety kosa, na ny ranon'apango misy voay"
+- Banga mihinam-boanjo-bory , am-body manao kanety
+- boka manao slow, raharaha ny mba te hanao zay mba ataon 'ny olona e
+- boka mianatra bisikileta, vo manombaka tonga dia manao tsy an-kitazona
+- Boka mitolom-boatavo ,tafaray samy malama
+- Samy manana manana ny tiany hoy ilay rangahibe nitsako tain-delo
+- Trano ben 'Antananarivo ka izay mahavita aloha manenina
+- Tanora ratsy fiary ka maka kitay fotsy volo
+- sahobakaka latsaka am-pantsakana, ny hevitra ivoahana misy fa ny hoza-body no tsy maharaka
+- lany ny kipilipily zato vao tonga ny voron-tsara dia
+- Tsy misy lehibe toy ny omby fa raha sendra tsingala dia maty
+- Ny olombelona fandrin-drano : tsy misy avo sy iva
+- Lahy antitra misafosafo ny rahany...ka mitsetsetra ,mitanisa mahatsiaro ny lasa...
+- Malahelo ,lasa fisainana , lany hevitra toy voangory mijery zaza mangery ambony vato......!!! :-))
+- Herim-po very maina toy ny akoholahy antitra nanenji-bavy vao tanora...(vantotr'akoho vavy) ka ny raha tsy azo moa ny tena misoháka sempotra....!!!
+- Tsa ny toaka ro mahere fa agnay betsileo ro tsa mahay misotro...
+- Ny betsileo liaka tsa mba mabo fa ny toaka ro mahery
+- Ny an'ilay niandrandra nijery vorona : "tsy tay iny fa fanampi-paraky"
+- Andriamanitra tsy andrin'ny hafa fa andriko ihany
+- Zanahary tsy mitahy mandry
+- NY TSINY FANALAN'NY VAVA
+- Izay maharitra vadin'Andriana
+- Aleo very tsikalakalam-bola toy izay very tsikalakalam-pihavanana
+- Ny marina mitavozavoza tsy mahaleo lainga tsara lahatra
+- Mifampitsipaka toy ny valala an-karona,ny tafakatra indray no itsahina
+- Tsy sitrapon'ny vilany ny ho mainty fa dorana andro aman'alina izy ka ngerona.
+- Tsy sitrapon'ny antsy ny hikapa taola-mahery fa asesiky ny tana-mandrasa ka tsy afa-mandà.
+- Lany ve ny hazo , no ambiaty no atao tehina.
+- Ny vatolahy antampn-kavoana no arahabaina tsy mba mamaly, atao mbay lalana tsy mba mivolana.
+- Na ho lasa aza moa ny ririnina, ny zaza tsy teraka tsy azo foraina.
+- Takitrosa amin'andriana ka ny tompony indray no manambitamby.
+- "Aza mamaly ratsy amin'ny ratsy,fa aleo mivavaka sy manao soa aminy"
+- akoho mitsiri-bilany ka mijery ny fasana ilevenany
+- Tsinjaka andavenona ka sempotrin'ny raha tiany....
+- raha ny hendry midera tena, manambara ny adaly kosa
+- Raha manome raiso, Raha mikapoka na manaikitra kosa andosiro...! (:-))
+- "Zaro@làlana tokony alehany ny zaza,fana antitra aza izydia tsyhiala@'izany" (0habolana 22:- (Mankàny @Jesosy Kristy)
+- "Amin'ny izay rehetra atao, tsarovy fa misy ny farany"
+- Jamba misikidy;mahita masoandro ho an'olona,fa tsy mahita ho an-tena.
+- Jiolahy nahafaty mpamosavy,ka matin'ny olon-dratsy ny ny olon-tsy vanona.
+- Aza faly am-panaovan-dratsy,toa mpamosavy
+- Aza malahelo diso levenana,fa ny faty mbola ho be
+- Ataovy toy ny andry ombin'ilaisalama ny havana,ka ny kely voasafosafo;ny lehibe voatehatehaka
+- sarotr'enjehina toy ny saka mainty ao anaty haizina, indrindra raha tsy misy ao
+- Ny hadisoana dia toy ny rivotra : mikasika antsika fa tsy misy endriny
+- aza atao toy ny vato ny fihavanana ka raha tapaka tsy azo atohy
+- aza atao toy y vato ny fihavanana ka raha tapaka tsy azo atohy
+- ny fanahy no maha olona .
+- Aza manao fihavanan'amboa ka taolana iray no isarahana.
+- Aza manaw toy vary an-tsaha tonga namana haka vao mavomavo
+- Aleo ambany toetra,nefa manana mpanompo iray,Toy izay mihambo ho be voninahitra,nefa tsy manan-kohanina akory.
+- Aza manw toy n fo ka rehefa tia vao taitaitra.
+- Aleo mitoetra eo an-joron'ny tampon-trano.Toy izay hiray trano amin'ny vehivavy tia ady
+- Aleo ny kely omban'ny fahamarinana toy izay ny harem-bevava azo amin'ny ts rariny
+- Toy ny rano sy ny vary, mifameno hatraiza hatraiza
+- ny teny ierana tsy mba loza ; tsy misy mangidy noho ny sakay, fa raha teny ierana dia hanina
+- Be faniry, kely fila; ny vary aloha tsy ataon' ny kamo
+- Aza manao fihavanan-javona, ny andro ihaonana toa tsy hisaraka fa raha misaraka dia lasan-davitra
+- Aza atao fively aponga ny havana ka ny andahiny gobogobohina fa ny am-bavany lambolamboina
+- Na iza hianao na iza dia tsy misy mahasamihafa amin'ny hafa
+- Ananao daholo ny zavatra rehetra kanefa hianao mbola mahatsiaro ho singan'irery ihany
+- Aza manao valifatin'ilay fo menarana.
+- Ny saina zatra mikarokaroka dia vonona mandrakariva manitsy ny tsy mety atao.
+- Raha te ho tafita amin'ny fiainana,ny zavatra atao voalohany dia miraiki-pitia amin'ny zavatra ataonao.
+- Tadidio fa irery isika amin'ity fiainana ity.
+- Mianatra mitia isika avy amin'ny fitiavana ao anatintsika.
+- Ny eritreritra dia toy ny papango rivotra ka misidina irery avo dia avo.
+- Ny ririn-dasa tsy tsaroana
+- Toy ny angidina:atao mahia ,be tratra;atao matavy,kely rambo.
+- Tsy mety raha ny ateran-kira indray no milaza ho tsy mahay mihira.
+- Te-hilaza ka tsy mahay;te-hiteny ka bada lela.
+- Ny olombelona fandri-drano, ka tsy misy avo sy iva.
+- Ny ela maha iray ny roa
+- Lahiantitra kendam-bodiakoho:mahazo fanjakana vao mivadi-boamaso,tonga valim-pitia vao voa totohondry an-katoka.
+- Amboa mitsilany,tsy hanin'ny namany.
+- zoky toavina tsy andriana ;zandry manoa tsy andevo
+- Bala hamatra ny marina ka tsy azo atifitra toloho
+- Ny olona no miady, ny marina no avoaka
+- Ny marina toy ny trondro vaventy ka tsy hita raha tsy amin’ny rano lalina
+- Ny marina toy ny afo ka raha kobonina mandoro
+- Tezitra alohan’ny rariny ka tsy misy asiana ny hitsiny
+- Izay manao ny rariny manao hitsiny
+- Ny heloka nilaozana tonga hitsiny fa ny rariny itompoana tonga raiben-keloka
+- Izay manondro lala-mahitsy mamindra aina
+- Aza manao bingo manao matso fa mandehana amin’ny hitsiny
+- Ny omby matin’ny taviny, ny hazo matin’ny hitsiny
+- Ny hitsiny tsy aritra, ny rariny tsy enti-mandefitra
+- Ny rariny toy ny hazo mahitsy, tsy hita tsy anaty ala ; ary toy ny nofy tsy azo raha tsy matory
+- Tailan-doha manao soro-bilana ka ampihilana ny efa nivilana
+- Tsy mahafeno riha ty hatake
+- Tantele miato fare, mamy ie iatoako, mamy izaho miato aze
+- Tsy longo ankarine’e ty laletse, tsy rafe t’ie lavitse ty tantele
+- Aza manao ahy sy azy
+- Ny hasasarana mahamaloka endrika
+- Tsy voavonjin'ny hafa akory fa ny havana ihany no hala-mahatratra
+- Mifankatiava ny velona fa ny maty efa tsy namana
+- Ny fikambanana no hery
+- Ny firaisana no mateza ny fifankatiavana no tady mandrohy azy.
+- Ny fahadiovana sy ny filaminana, ny fiasana sy ny fitsitsiana : izay tokan-trano miorina amin'izany tsy mba ho rava
+- Ilay Kamo mivady : ny lahy matory maraina, ny vavy manao be fahandro : tafahaona ny adala roa.
+- Kitapo mora feno ; vady miara-miary.
+- Aza manao hoe : " an'ny lehilahy ihany", na hoe " an'ny vehivavy ihany"
+- Anambadian-ko namana, iterahan-ko dimby - Anambadian-ko namana, iterahan-ko solofo.
+- Ampanambadiana lasan'olona, omby namidy tsy an'ny tena
+- Ny fanambadiana tahaka ny menaka, ka raha manalavitra ny afo dia mandry
+- Ny fihavanana ohatra ny landy : maty isika, ifonosana ; velona itafiana ; ka ny madilana arahim-panondro.
+- Aza matoky fitiavana ka hitanjaka imasom-bady
+- Ny fitiavana toy ny lambamena ka faty no hisarahana
+- Fitia savony, tiana fa avalana rano
+- Ataovy fitia voatavo : raha lena atao laoka, raha maina atao siny ary raha vaky atao toham-baliha hikalokaloko isan' andro
+- Lahy antitra kendan’ovy : tsy atolak’olona, fa matin’ny nasesiky ny tànany
+- Boka mihinan-kitoza : ny fihinanana no lavorary, fa ny manala kaka no ady mafy.
+- Lahy antitra kendam-body akoho : mahazo fanjakana vao mivadi-boamaso ; tonga ny valim-pitia vao voa totohondry an-katony.
+- Aza manao toy ny rafozana jamba, ka aleo ateran-tsira kely toy izay homen-damba tsara
+- Manam-bady ny lava, tsy mindran-tohatra intsony ; manam-bady fohy, mitahiry tapak’aponga ; manam-bady ny loza be, mitahiry varatra an-trano
+- Andevolahy mamosavy tompo : voky hena indray andro fa hiongo-belona herintaona.
+- Mioty manta ka leony, miringiringy ka potraka
+- Haitraitran'olombelona, zaka-Nanahary, fa Andriamanitra ihany no mandidy.
+- Mandeha irery, sahalain'Andriamanitra, mandeha roa, sahalain'olombelona.
+- Mpisakaiza toa mpiombon-dray, mpifankatia toa mpiombon-dreny
+- Amin'Andrianampoinimerina ny ranomasina no valamparihy. Ny antsika kosa ny fofon'aina no fetram-pitia
+- Aza atao fitiavan-jaza ka androany aho tia, rahampitso aho bedin'ny dada, afaka ny ampitso aho tia olon-kafa.
+- Nahoana no ho tia vao ka manary kolokolo ?
+- Aza asesiky ny fitia tanteraka, ka tsy mahalala ny ranonorana ho avy
+- Aza atao fitia voangivy, mbola lavitra ihany ka kivy
+- Izay manome ny malahelo tsy hanan-java-mahory ; fa izay mitapi-maso hahazo ozona be
+- Aza manao lahy antitra mahazo lamokan'atody akoho, ka tsy mitadi-zafy intsony.
+- Tantely be ronono ny fitiavana ka arakaraky ny hizaranao azy no vao maika ahazoana fifaliana.
+- Vorombola miaraka amin'ny akoho, miala fa tsy havanay.
+- Misotro rano an-tanam-bady tsy hetaheta fa angolangola.
+- Aza atao toy ny fanjaibe hazo ny fitiavana, very tsy mampamoifo, hita tsy mahafaly
+- Miarahaba mamba, tsy fitia fa tahotra
+- ny teny ierana tsy mba loza ; tsy misy mangidy noho ny sakay, fa raha teny ierana dia hanina.
+- Ny Havana aza mba hadinoina, toy ny kitapo nahafahana entana
+- Ny be no basy
+- Akoholahy jamba ka ampiadiana tsy mety miady, apetraka mitsaingoka ny namany.
+- Akoholahy mitelin-koto: raha mahay mitelina dia tohan'aina, raha tsy mahay mitelina, dia singotry ny lela.
+- Volom-bodin'akoholahy: malaza tsara ihany fa aorian'ny namany.
+- Akoholahy manakokokoho vavy: tsy hanin-kahavoky, fa volan-kifanajana.
+- Akoholahy miady am-pasika, ka samy miaro ny masony tsy ho ditsoka.
+- Adin'akoholahy vorombato: ny mahery disadisa, ary ny resy torotoro.
+- Lany hatoka hoatra ny akoholahy matin'ady.
+- Mpisakaiza amim-bazimba malahelo, ka ny akoholahy lany, ny fitahiana tsy misy.
+- Akoholahy sy masoandro ka mifamotoan-tsamy lavitra.
+- Toy ny akoholahy an-drova , samy ta-haneno avokoa.
+- Fantsin'akoholahy maranitra fa am-paladia.
+- Tretroka akoholahy mena fa ambanin'ny mena.
+- Manjilajilatra hoatra ny feo vantony.
+- Manetsa vary mahalana, ka ny atao no alaina.
+- Ny saboimaro maiva-mavesatra
+- Rafotsibe nita rano ka izay hahasoa taovin'Andriamanitra, na ho rendrika, na ho tafita
+- Jangareny, ka botry anaka
+- Ody valalan'ny tsy mahay, ka voky dia miala
+- Manda lem-body, koa sonzo rano
+- Mitery omby tsy mirohy hoatra an-dRabemalo, ka ho fatin'ny daka no farany
+- MIteny ny iray toa novakonina, miteny ny iray toa nampalesina
+- Torovok' amboa maro mahalala, fa ny fisafeliky ny rambony no tsy fantatra
+- Lava hadalana ohatra ny valalan' amboa : kely mitsipaka, lehibe mandady
+- Mahita amboa miady taolana ka mahatsiaro ny hena fony nandro
+- Vivy nanitrika ka bongo mason' ny nahiny
+- Manao zanaka anaty fo maharary
+- Lanonam-pahavaratra ka ny maraina ihany no izy
+- Ron' i Mandiavato ; ny sisa tsy lany anasa-tongotra
+- Ilay nahandro vato : raha ny rony dia masaka
+- Manely vory ohatra ny akoholahy ambony sompitra
+- Aleo mandroso ho faty toy izay miverin-ko may
+- May tsy mba homana ohatra ny soitrafo
+- Ny latsaka am-po tsy hamelona, ka ny an-tendro-molotra indray no lelafina
+- Ambohimanambola no matavy omby ka Antananarivo no lafo kitay
+- Any Antsahadinta no voky tsaramaso, ka any Ambatolaona no mizihi-kibo
+- Aza manao tsingala mahalala ombin-tena
+- Mahafoy erany ka tsy mahafoy mihintsana
+- Hady vory faritan-tsy honenana
+- Tsy Tankay aho ka tsy hahalala dian-dambo
+- Any ny kipikipy zato vao tonga ny voron-tsara dia
+- Mietaketaka foana ny aketa, mirisarisa foana ny adrisa, fa tsy enina anay mitratraingo
+- Matin-drobon' ny adrisa ka fola-pen' ny aketalahy
+- Atao adala ka tezitra: vary misy ro ka haronina, sisan' Idalo ka hanina
+- Izay hajaina tsy ho andriana tsy akory, ary izay manaja tsy ho andevo tsy akory ; ka tsara ny mifanaja.
+- Matoky ody voalavo va ianao no manao hena an-joron-damba ?
+- Tsy misy nivavaka niankandrefana, fa samy nianavaratra ihany ; fa ny harena mila vintana, ka raha tsy anjara, tsy tonga.
+- Ny maty no tsy alevina Alakamisy sy Alahady, ny velona no tandrovina
+- Ny halavoana tsy mahalehibe
+- Toy ny tongom-bintsy an'ala, ka madio lavi-drano
+- Aza manao an' Andriamanitra azo am-po mandrakariva
+- Ny olombelona toy ny embok' akondro : raha manondro ny lanitra, iray ihany ; fa raha miondrika samy manana ny lafiny
+- Mody tsy sompatra, kanefa mangalatra ny akondron’ny marary
+- Tezitra alohan’ny rariny, ka tsy misy asiana ny hitsiny
+- Maro foana toa manam-poza
+- Aza manao toy ny tandindona, miaraka ihany, fa tsy azo ho namana.
+- Ny fo tsy mandringa, ka raha mandalo aho mitsidika ihany
+- Manao zanaky ny mpisikidy ka tsy mba ho faty, na zanaky ny mpanefy ka tsy ho may
+- Tsy nisy nanao soa ohatry ny vilany, fa raha vaky, natao fanotrehana akoho
+- Manaova soa ampiantany, fa misy hiankinana ; ary manaova soa vato, fa misy hipetrahana.
+- Ny marina toy ny tsiriry anaty harefo : tsy maty, fa malazo
+- Ny olona marina ohatra ny vato lava sorona, ka izay ametrahana azy marina avokoa
+- Sobiky rindra notampenan-kerana, ka ny azy fanahy iniany
+- Sabora raiki-molaly : na manitra aza mangidy.
+- «Veloma» tsy mba adidy : sakafo lany tsy mba andraikitra.
+- Manasa lamba be tseroka : na madio aza, mangarahara.
+- Aza misoroka adidy ka tsy manan-tiana.
+- Aza atao fively amponga ny havana : ka ny iray am-baviny tambatamba­zana, ary ny iray kosa an-dahiny hodobodobohana.
+- Aza asesiky ny fitia tanteraka, ka tsy mahalala ny ranon'orana ho avy
+- Aza manao fitia paraky, ka hatreo am-bava no ho miakatra ihany
+- Longo ratsy tsy menatra izay hitsoriaka
+- Atody tsy afindra reny ; ro tsy afindra vilany
+- Ny tsikalakalan-karena manam-pahalaniana, fa ny tsikalakalam-pihavanana tsy manam-pahalaniana
+- Fihavanan' ny Mamoladahy : tsy mihavana roa taona
+- Ny fihavanana tahaka ny volonkotona : hatonina, manalavitra ; halavirina, manatona
+- Maizina ny andro, azo tsilovina; lalina ny rano azo lakanana; lalina ny hady,azo toharina; fa ny ratsy atao tsy mba azon-kevitra
+- Ny fanompoana tahaka ny lanitra, ka samy miloloha ny tandrifiny avy.
+- Kary mihomehy ny vorondolo, ka ny mandady indray no mihomehy
+- Tahaka ny jiafotsy : vao, tsy ilaozan-kasokasoka, rovitra tsy hilaozan-dromoromo
+- ny iray tsy tia mafana, ary ny iray tsy tia mangatsiaka : ka ataovy ny marimaritra iraisana
+- Toy ny rano am-pasika ; natao tsy hisy fa nisy ihany
+- Ataovy vikina alina ny fiainana, aleo manana amby toy izay tsy ampy.
+- Ny ela nandeferana , tsy voatazon-tsonia fito.
+- Amalon'iMoriandro, tsy hain-jaza , tsy haim-behivavy.
+- Aza malady hofana toa amalon-kely.
+- Lon-damba sy fahenim-bary ; ka izay maharitra ela dia herinandro.
+- Tsy nahin’ny sosoa no nitobaka, fa ny mpandoatra no vinitra.
+- Tsy mahafoy vola hamidy takotra, ka manta vary.
+- Jejo mitaratra ka lany andro eo ampifidianana.
+- Vary aloha , mahatra-po fa tsy mahavita taona.
+- Tsy misy manao soa tahaka ny vilany , fa rehefa lany ny mamy ahohoky ny sasany.
+- Trandraka milevina, ny volontany tsy ariana.
+- Fahaizana tsy ombam-pahendrena , tsy henika satro-boninahitra.
+- Alika mivovo, tsy hery fa tahotra.
+- Volamena notaingenam-boahangy, tafahaona samy mamiratra.
+- Akohokely paohin'ny papango, very vao misidina ambony.
+- Rano atami-bato ny maniasia no betsaka.
+- Ombilahy isangodinan'ny menarana, ka raha omby ny vavany tonon'andro ny ho faty.
+- Kely vola ka mitatatra alohan'ny maro.
+- Ny teny toy ny fonosana, ka izay mamono no mamaha.
+- Ny tena marina ohatry ny fia-pary, ka na lava aza, tsy lany hamamiana
+- Anantsinahy va aho ka atao ambony vary ?
+- Ny lainga toy ny vary aloha, mahatra-po, fa tsy mahavita taona
+- Ny fihavanana tsy azo vidina
+- Mifankatia amin'ny amalona, ka nony sendra tia, nabolilany
+- Anao aho ka mora, fa raha an'olona aho dia sarotra
+- Setroka sy tomany tsy mba sarotra fantarina
+- Ny faty mpanazakazaka, ary ny aretina vadin-koditry ny olombelona
+- Tsy ny fanambadiana no taloha, fa ny fihavanana
+- Ny fihavanana toa fasambazimba, ka izay mandrava aloha no tapak'ila
+- Havana tsy fantatra, naman’ny tsy havana
+- Adala nomen-tanan'ondry , na soloana ofany aza tsy tia.
+- Maivan-tsaina tahaka ny angidina, akanjo manify no enti-mirehareha.
+- Ny teny toy ny antsy, izay maranitra no adidy.
+- Be tsy misaina tahaka ny vato, tsy miteny ka taingenam-borona.
+- Vahiny an-trano tokana, raha tsy maty voky ,maty noana.
+- Miara-monina amin-dRakalamoana ka ny baiko andratsana no be.
+- Izay fatra-panova vady rava harena.
+- Aleo manambady fanahy toy izay manambady tarehy.
+- Aza atao hantan-kankana ka tapaka eo ampiolehana.
+- Mafanafana tahaka ny ratsy atao an-kavana.
+- Tsy mba tsiriry vorona, ka manifi-drano dia lasa, fa tsiriry ahitra, ka lo eo an-tany naniriany
+- Vorom-bola miaraka amin'akoho, mialà fa tsy havanay
+- Vano am-balam-parihy ihany mantsy aho, ka raha tazanina toa avo dingana, hatonina kely fingotra
+- Tsy misy adala tahaka ny akoho, fa nony hariva ny andro, mahalala mody
 
-    
+  
