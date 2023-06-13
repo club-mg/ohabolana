@@ -132,3 +132,33 @@ Mpikabary \ Ohabolana
 - Ny anaran-dray tsa afify
 - Ny tarana-by tsa mba mandavenona
 - Ny valala misy, ny mpilaza koa mahay
+- Aza malahelo vaky vilany fa manakaiky an ' Ampanataovana
+- Mahita volana alohan-dRabiby.
+- aleo mifanalavitra mifamono akoho toy izay mifanakaiky mifamono aliaka
+- Na dia tiako aza ny trandraka fa zaho tsy hibaby zana-kiva
+- Manalasala tahakin'ny vady lava nify, atao eo aoriana, ohatran'ny hanaikitra, atao aloha, sahala ny mitsiky amin'ny mpandalo
+- Teny maro tsy mba kabary
+- Sopierabe an-dakozy,raha miroso anivo hamoaka ny masaka
+- Banga mihinam-boanjobory, any am-body vao milalao kanety
+- Aza manao fahanteran'alika ka antitra vao miha-gaigy.
+- Aza mandray tsy raisina toy ny tsipolitra.
+- Aza mora kivy fa dian-tana ny fiainana ka miroso tsikelikely.
+- Matikambo milaza tsy tia nefa avela irery milela-bilia.
+- Efa ho lava toy ny laingan'ny faritra sasany, avekeo mierina hoy izy nefa any izy dia tsy hita.
+- Varimbarian'ny lavitra ka tsy mahita ny ambany maso..
+- Mandrimandry manana aretina tahaka ny didy maso tsara ondana.
+- Ny vava no tsy atao be,ny mamerina azy no sarotra.
+- Raha indray mandeha no manta vary,tsy handevin-tsotrobe.
+- Arahabao izay hita fa tsy fantatra izay ho rafozana.
+- Tsy misy tanora natao tsy hiavona, fa rehefa antitra miady lohalika.
+- Tsy misy izay tsy ho kamboty,fa ny kamboty aman-kevitra no tena kamboty.
+- Jamba mangery amoron-tevana ka latsaka alohan'ny tainy.
+- Raha tiana ny vady,ny rafozana no tsinjovi-mandeha.
+- Aza faly ny hanambany fa ny hainao tsy ho vitako,ary ny vitako tsy ho hainao.
+- Aza mahidy imason-tsipa, fa ny vola fitady ary ny aina fanary..
+- Ny aina Ramangatahiana, fa ny vola Ramangatadiavina.
+- Zanaky ny efa mangotraka,tsy matahotry ny hangorovitsika.
+- Tsy misy ny kamo ambinina,fa ny hatsembohan'ny tavanao ihany no ihinanan'ny vavanao.
+- Izay manan-tsira,mahay mahandro.
+- Aza ny fahantrako no jerena,fa ny toe-tsaina hananako.
+- Ny ory tsy havan'ny manana...
