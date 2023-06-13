@@ -462,5 +462,36 @@ Mpikabary \ Ohabolana
 - Tolona am-batolampy ny fiainana ka izay tsy mitandrina vaky loha.
 - Aza atao fihavanan'alika ka isaky ny mifankahita dia mifanasavangy.
 - Be hambo toa rambon'osy ny lanitra tsy ianjeran no tohanana nefa ny vody lanin'ny moka tsy hita.
+- Aza atao fitia varavarana ka tiana ihany fa atositosika.
+- Afo ny fitiavana ka tsy azo sangiana
+- Boka homan-kitoza, faly am-pihinanana fa ny manala kaka nom raharaha
+- Tolona sy ady ny fiainana ka zara ho an´izay manam- paniriana handresy
+- Tsy ny anjara no mamolavola ny olona fa ny olona no mamolavola ny anjarany
+- Be hambo tahaka ilay jamba ka milaza fa mahita kitana mitatao vovona
+- Menaky ahosotry fory ka hetotry no mba avalinazy!
+- Menaky nahosotry fory ka hetotry no avaliny azy!
+- Boka mita rano, toy ny fidoboka
+- Ny Tondro tokana tsy mahazo hao
+- Ahandro an-tane, trea tsy ilove, bae an-kandry trea tsy harefe
+- Tro-bontsy tsy añarian-kane, heloke ho afake tsy añariambaly
+- Mañehen-dolohaze hoe hao an-doha
+- Heam-boron-dResolia, apoke i fa reketsey fa hañeañe i raike
+- Apemba nihanem-balavo, tsy motso fa nihanen-draha miay.
+- O volokoo o gogoo fa zaho tsy abo
+- Fiaboa ty raha soa, fañabokà ty raha raty.
+- Amalo mamadi-pe, ho tombohe, mahavoa fe, havotsotse laoke
+- Ataovy fitia vita voady ka sahy misotro ny aleoko maty
+- Ny nantenain-tsy azo, ny antanam-botsitra.
+- Saro-devonina sahala ny tsaramaso tsy tsara masaka, manahirana ny tompony ary koa manahirana ny mpiara-monina.
+- Ny faniriana mety ho sahala, fa ny anjara tsy hitovy.
+- Tsy misy hazo mamoa ka tsy miorim-paka.
+- rafotsibe hangery amoron-tevana,latsaka alohan'ny tainy
+- Hodiana tsy re ohatry ny fosan-drafozana
+- Izay tsy mahay sobika mahay fatram bary
+- Matokitena ho be vavavody ka mitelina vonina zavoka
+- Boka mihinan-kitoza: ny fihinanana dia lavorary, fa ny manala kaka no ady mafana.
+- Boka nangala-boatavo ka miandry ny tompony hanatatao
+- Nidiran-doza ohatrany sinoa nenjehin' alika, ka ny sakafo indray no andosirana
 
+  
   
