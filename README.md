@@ -1,14 +1,44 @@
 # ohabolana
 Mpikabary \ Ohabolana
 
-1. Hataka @andriana, mahazo "Misaotra tompoko", tsy mahazo "Misaotra tompoko"
-2. Rafotsibe mangataka omby: raha mahazo, manan-karena indray andro; tsy mahazo, ny omby angaha fangataka?
-3. Boka mangata-pitahiana,zanahary hanome no anombanana totohondry
-4. Voalavo anaty siny, boribory ny lanitra
-5. Mangidy andro matetika andrenesana hoe marina entina mamadika ny marina
-6. Ny tsiny, mantsy, tahaka ny haran-domotra saron-javona ka izay mitsakatsaka ratsy fisikina no solafaky ny setrasetran-tsahondra ka zary very faty eny an-tenantenan-tsolatra
-7. Rehefa manondro Volana ny hendry dia ny tanany manondro ihany no ho hitan'ny vendrana.
-8. Ny takatra no nahavita trano ka ny vorondolo no mibohy
-9. Ny vady dia toy ny fotaka an-tanana ka ho fehezina miporitsaka,hatao goragora hiala
-10. Ataovy toy ny kitram-pirenena ka samy hiady mafy ho an'ny fandresena
-11. Kanakana manotrona atodim-boay, tsy miantoka ny hahafoy fa tahotra ny rano iarahana mandro
+- Hataka @andriana, mahazo "Misaotra tompoko", tsy mahazo "Misaotra tompoko"
+- Rafotsibe mangataka omby: raha mahazo, manan-karena indray andro; tsy mahazo, ny omby angaha fangataka?
+- Boka mangata-pitahiana,zanahary hanome no anombanana totohondry
+- Voalavo anaty siny, boribory ny lanitra
+- Mangidy andro matetika andrenesana hoe marina entina mamadika ny marina
+- Ny tsiny, mantsy, tahaka ny haran-domotra saron-javona ka izay mitsakatsaka ratsy fisikina no solafaky ny setrasetran-tsahondra ka zary very faty eny an-tenantenan-tsolatra
+- Rehefa manondro Volana ny hendry dia ny tanany manondro ihany no ho hitan'ny vendrana.
+- Ny takatra no nahavita trano ka ny vorondolo no mibohy
+- Ny vady dia toy ny fotaka an-tanana ka ho fehezina miporitsaka,hatao goragora hiala
+- Ataovy toy ny kitram-pirenena ka samy hiady mafy ho an'ny fandresena
+- Kanakana manotrona atodim-boay, tsy miantoka ny hahafoy fa tahotra ny rano iarahana mandro
+- Rafotsibe mangataka omby: raha mahazo, manan-karena indray andro; tsy mahazo, ny omby angaha fangataka?
+- Boka mangata-pitahiana,zanahary hanome no anombanana totohondry
+- Voalavo anaty siny, boribory ny lanitra
+- Mangidy andro matetika andrenesana hoe marina entina mamadika ny marina
+- Ny tsiny, mantsy, tahaka ny haran-domotra saron-javona ka izay mitsakatsaka ratsy fisikina no solafaky ny setrasetran-tsahondra ka zary very faty eny an-tenantenan-tsolatra
+- Rehefa manondro Volana ny hendry dia ny tanany manondro ihany no ho hitan'ny vendrana.
+- Ny takatra no nahavita trano ka ny vorondolo no mibohy
+- Ny vady dia toy ny fotaka an-tanana ka ho fehezina miporitsaka,hatao goragora hiala
+- Ataovy toy ny kitram-pirenena ka samy hiady mafy ho an'ny fandresena
+- kanakana manotrona atodim-boay, tsy miantoka ny hahafoy fa tahotra ny rano iarahana mandro
+- raha tanora tsy hilalao dia aleo mody ho antitra, fa raha antitra tsy hampiady karajia dia aleo mody ho razana
+- sambatra izay itoerany fa ny nandalovany aza misento
+- Tehin-kiho ampiakarana, tsy haingo fa tohan' aina
+- akoholahy maneno an-tsena, tsy hery fa alahelo ny toerana nilaozana
+- ny akoho no tsy manatody in-droa ao anatin' ny iray andro dia ny fitsinjovana ny apitso
+- Ny soa atao levenambola ary ny ratsy atao loza mihantona
+- Ny faniriana lalina no mampanaonao foana fa ny fahadisoam-panantenana no mampiheritreritra.
+- Lomanom-boka ka tafita vao rendrika
+- Ratsy fisangy toy ny saka no alaimbolombava......
+- Mpamosavy milevina amoron-dalana ka mahatantesa valin-kitsaka
+- Aleo matanja-tsaina, fa ny sandry be tsy ilaina
+- Basy tsy mety velona, tapaho atao saosisy
+- ny tampoka tsy maha lehilahy, fa ny mahalehilahy tonga tampoka
+- mandiso fanantenana tahaka ny afrikanina milanja pecto
+- Fohy fa henjana tahaka ny rambon'omby tapaka
+- Rehefa manan-katao ny mpivady, atonta hehy, atonta hehy... rehefa tsy misy ny hatokona atonta ady, atonta ady...
+- Mpianatra samy mahay , ka mifanome formule diso
+- Ahandro mahia mila menaka, raha matsatso mila sira, raha tsara tsy mila dera.
+- Ny tena fitiavana tsy sento ka hoe miserana fotsiny ihany.
+- Ny naman-kanírina manjàry havana, ny naman-kandrendrika tonga fahavalo.
