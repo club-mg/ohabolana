@@ -312,3 +312,34 @@ Mpikabary \ Ohabolana
 - Rafotsibe leom-boananana ka tsy te hahita zava-boribory mainty
 - Rafotsibe leon-tsokina ka tsy te hahita vodi-kifafa
 - Bangon-takatra ka indray mikopaka dia vita
+- Gny vorom-potsy tsy lavits'agnomby
+- Ny valala tsy azo raha tsy andriana ilika
+- Mpiandry omby volavita tsy tompony fa mpamerin-doha
+- Mitaiintaina toa sobakaka ambodiriana
+- Ny hendry no anarina, ny mahalala no atoro
+- ny heloka ibabohana mody rariny
+- Manan-joky afaka olan-teny, manan-jandry afaka olan'entana
+- Gny nahalava moko gn'akanga dra gny mitao
+- Raha zanaka tsy hanaja ray aman-dreny, miteraha hahita
+- Ny kibo voky no vady manohana
+- Tsy ampy tsy lany toy ny sola vaohina
+- Izay mitovy ro milambagna
+- Raha maty aho, matesa rahavana, raha maty rahavana, matesa ny omby
+- Akoholahy mikohokoho vavy, tsy hanin-kahavoky fa voninahitra ifanomezana
+- Tsa mahalala ny poketra misy vola fa ny dangon-tsakay ro atao an-kelika
+- Ny tsa tea ro miedika
+- Ny ômby hena, ny vola taratasy, ny tanimbary fotaka fa ny ona ro ona
+- Izay to fo mpamosavy
+- Adin'ombalahin'ny mpianakavy ka izay mandresy tsy hobiana ary izay resy tsy akoraina
+- Ny tanin'andriana aza onenana ka ny satany ve no tsy harahina
+- Mpifankatia tsy miresaka, lany androantokom-pitiavana
+- Tanora ratsy fihary ka maka kitay fotsy volo
+- Vitsika momba kitay ka harivariva an-tanin'olona
+- Vorondolo nitera-boromanga
+- Aza manao fira hazo am-pihaviana
+- Foto-kazo sy vorona ka izay tia manatona
+- Tsa misy raha te ho anao fa agnao ro te hanagn'azy
+- Valala iray aza ifanapahana
+- Ny valala vôna agn'Isandra ko agnareo fa miady fagnendezana
+- Tsa metimety ny fo mpisy vary leky ny sonjo feno fatagna
+
