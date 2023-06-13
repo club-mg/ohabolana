@@ -162,3 +162,33 @@ Mpikabary \ Ohabolana
 - Izay manan-tsira,mahay mahandro.
 - Aza ny fahantrako no jerena,fa ny toe-tsaina hananako.
 - Ny ory tsy havan'ny manana...
+- Kodiaran-tsarety ny fianana; ny ambony mbola ho lasa ambany ary ny ambany mbola ho lasa ambony.
+- Aza milaza ho tsy kitay,tsy vary maina;fa tsy fantatrao izay havoakan'ny ampitso.
+- Aza manao Andriamanitra tsy misy ka mitsambiky mikipy
+- "Raha ankizy tsy hilalao mody ho tanora, raha tanora tsy ho jejo mody ho antitra, raha antitra tsy ampiady karajy mody ho razana, raha razana tsy mitahy mifohaza iady Vomanga."
+- Havana tsy fantatra, naman’ny tsy havana
+- Saro-tiavina toy ny maimbo helika, kobokobonina masiso, aderadera mahatorana
+- Aza manao be volo-kelika manao selfie ka samy mijery ny azy
+- "Tsy misy mahay maka fofo-pofona mihoatra ny amboa fa rehefa tojo fofo-kelika mitsoaka matanjaka"
+- "Aza manao toy ny atody voakapoka ka mahazo menaka mafana vao mitambongana"
+- Tezitra alohan'ny rariny, ka tsy mahita ny hasiana ny hitsiny
+- voalavo misangy andavenona ka ditsoky ny nataony ihany
+- ny marina toy ny trondro vaventy,ka tsy hita raha tsy any amin'ny lalina
+- fo tezitra tsy ananan-drariny
+- "aza midongy ho avo hoatra ny tandroka, na ho ambony hoatra ny trafo, fa tsy ny ambony no hajaina, fa izay hajaina no ambony"
+- "ny adala no tsy hambakaina, Andriamanitra no atahorana"
+- "ilatsaham-baratra eo am-pangerena, ka sady maty no mihosin-tay"
+- "Areheto ny afo iaraha mamindro"
+- "raha tonga ny tokoa tokoa dia alavitra ny lainga"
+- "nahita akanga tsara soraka; ka nanary ny akoho tama an-trano"
+- tsy amoron'ny alika ny matory ambanin'ny trano; fa tsy fahavitany trano
+- "Tsy Mpanjaka ty Roandriagne, ty anake tsy ondevo"
+- "Ty Roandriagne tsy Mpanjaka, ty anake tsy ondevo"
+- Ny olombelona toy ny ladim-boatavo ka raha fotorana dia iray ihany
+- Ny tanety lava mampisy fisainana, fa ny fotoana maharitra mahatonga eritreritra.
+- Bararata amorondrano , mangovitra mandrapaha-faty
+- aza manao fisitrihan'alika, rehefa tsy mahita dia hoe tsy hita
+- Tsy volie ty natorake, tsy sokantanae ty binanabana
+- Ombilahy miasa, ka izay manao ihany no voakaravasy
+- Ranomaso tsy mahatana aina
+- Ny havisavisana ny ratsy hiavian'ny soa
