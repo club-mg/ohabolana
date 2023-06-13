@@ -492,6 +492,35 @@ Mpikabary \ Ohabolana
 - Boka mihinan-kitoza: ny fihinanana dia lavorary, fa ny manala kaka no ady mafana.
 - Boka nangala-boatavo ka miandry ny tompony hanatatao
 - Nidiran-doza ohatrany sinoa nenjehin' alika, ka ny sakafo indray no andosirana
-
+- Aza velarina eny amorondalana ny fitiavana fa hitsakitsahin'ny mpandalo
+- Dedaka tonga rafozana,akoho vonoina ka indramam-pamaky
+- Aleo mihaona amin'ny mpamosavy toy izay mihaona amin'ny mpandainga
+- Ny marina mitavozavoza resin'ny lainga tsara lahatra
+- vava soa ,ny teny ratsy adidy
+- ny tsy tia tsy hilaza tsara
+- Mivanivany toy ny alika mitsena voatira
+- Omby mahia tsy lelafin'ny namany...
+- Nahoana manao amin'ny jamba hoe, jereo amin'ny maso tsy miangatra, na amin'ny moana hoe, ento ny resaka fa ianao no zokiny.
+- Tifi-danitra,nahavoa,tany, tratry,ny, tsy,nampoizina
+- Sarotra entina toy ny rafoza be tsiny,omena ny manta tsy omby vilany,omena ny masaka sisa tsy lany.
+- Sarotra entina toy ny rafoza. be tsiny,ome.na ny manta tsy omby vilany,omena ny masaka sisa tsy lany.
+- Tsara tarehy petak'orona ka voatodro iray ny tsininy
+- sandry be tsy hery,fahatanorana tsy ody faty
+- Tafo tranon-reny tsy ambinina, Zanahary manafo ny ialany,izy manafo ny ilany
+- Ratsy vintana toy ny saka,ka be vohoka vao ato hoe mamosavy
+- Raha nisakana Ikopa, raha nisakana i Mananara, tsy hary i Betsiboka.
+- Mihinana am-bolony toy ny Malagasy voatamby, handeha hifidy.
+- Mahantra raha samy olombelona toy ny malagasy, velona ianjadian’ny fahoriana, maty very taolam-balo.
+- ny omby no matin'ny taviny,ny hazo no matin'ny hitsiny
+- ny marina toy ny vato am-balam-parihy raha tsy hitan'ny angady lohataona,hitan'ny antsy raha fararano
+- omby mahia be tandroka ka mizaka ny tsy eran'ny aina
+- Lany andro toy ny hendry mananatra adala
+- Jamba manao diamanga, ka ny rivotra no maty daka
+- Fisaka ny to,malama ny marina
+- "Aza diso mahihitra ka hanjaitra atody sy hitetika parasy"
+- Ze mania firàn-dambo
+- Tandrimorimo ty maola mahavoa ty mahihitsy
+- Tsy atoro fa hita hoe bay an-kandry
+- Ka miola soafitaky hoe hỳ, ka magnehi-dolohazy hoe hao
   
   
