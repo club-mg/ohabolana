@@ -16,6 +16,7 @@ Mpikabary \ Ohabolana
 - Aza ny lohasaha mangina no jerena fa Andriamanitra an-tampon'ny loha
  
 
+- Aza manao tompony, mangataka atiny
 - Hataka @andriana, mahazo "Misaotra tompoko", tsy mahazo "Misaotra tompoko"
 - Rafotsibe mangataka omby: raha mahazo, manan-karena indray andro; tsy mahazo, ny omby angaha fangataka?
 - Boka mangata-pitahiana,zanahary hanome no anombanana totohondry
