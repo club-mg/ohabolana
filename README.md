@@ -1249,6 +1249,7 @@ Mpikabary \ Ohabolana
 - Aza manao kobaka am-bava, volana an-tenda, ka hatreo no miakatra ihany.
 - Tsy misy mafy ohatran'ny vato fa rehefa tsy miteny angerezan'ny vorona
 - Ny teny toy ny atody ka raha foy dia manana elatra
+- Ny teny toy ny atody, vorivory manan'elatra, ko malemy mahakenda toy ny menaka, ary sarotra atelina tahakin'ny tsingala
 - Aza manao teny tsy loa-body
 - very maina tahaka ny tantely nahoso-bato
 - ny teny tsy mazava tsy hita fototra
