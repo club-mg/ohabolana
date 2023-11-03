@@ -1287,7 +1287,7 @@ Mpikabary \ Ohabolana
 ## Ohabolana ANKIZY-TANORA
 
 - Ny hazo no vanon-ko lakana, ny tany naniriany no tsara"
-- Manaram-po zaza ka misoron’afo volofotsy.
+- Manaram-po faha-zaza ka misoron’afo volofotsy.
 - Ny anatry ny ray toy ny tsipak'ombalahy, mahavoa mahafaty, tsy mahavoa mahafanina.
 - Izay manoro lalana mahitsy, mamindra aina.
 - Tsara raha maniry zaza ka tera-dahy
