@@ -16,7 +16,18 @@ Mpikabary \ Ohabolana
 
 ## Uncategorized
 
-
+- Ampongako no mihantona : raha manina aho, dobohako.
+- Aza manina an' Itrimondahy.
+- Izay tia, resy ; izay manina, adala
+- Kaikerim-poza maimay, afatotra manin-te hody
+- Kely manina, ka any an-doha no manetsetra
+- Kibo manina tsy mahatsiaro hanina.
+- Lahy antitra manina : hitsinjo tsy mahita, handeha tsy afaka.
+- Mitondra inon' iza moa aho izao no tsy hanao " manina azy " avy nandevina
+- Mody ny manina fa ny to-fo lasa-davitra
+- Ny olom-boky tsy manina, ny malahelo tsy mba liana.
+- Sakalava miankandrefana : tsy resy fa manina ny tany nahabe
+- Todiho fa manina, tsingereno fa tia.
 - Ny vilany no vaky, ny mpahandro no nimonjomonjo
 - Ny mita be tsy lanin'ny mamba
 - Asa vadi-drano tsy vita raha tsy ifanakonana
