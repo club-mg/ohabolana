@@ -16,6 +16,7 @@ Mpikabary \ Ohabolana
 
 ## Uncategorized
 
+- Mpivaro-drano tratra orana
 - Ampongako no mihantona : raha manina aho, dobohako.
 - Aza manina an' Itrimondahy.
 - Izay tia, resy ; izay manina, adala
