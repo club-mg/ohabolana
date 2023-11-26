@@ -18,6 +18,12 @@ Mpikabary \ Ohabolana
 
 ## Uncategorized
 
+- Ny tsiny toy ny saonjo m'bazimba, babena mahafoladamosina, lolohavina mahasola, dakana maha folaka
+- Ny tsiny toy ny ora'mpanala, ...
+- Ny tsiny toy ny 
+- Ny tsiny toy ny rivotra ankadilalana, mipaoka vao mandaitra ....
+- Mandia tany mety solafaka, miloloha lanitra mety ho lena
+- 
 - Mpivaro-drano tratra orana
 - Ampongako no mihantona : raha manina aho, dobohako.
 - Aza manina an' Itrimondahy.
