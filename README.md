@@ -23,6 +23,7 @@ Mpikabary \ Ohabolana
 - Ny tsiny toy ny 
 - Ny tsiny toy ny rivotra ankadilalana, mipaoka vao mandaitra ....
 - Mandia tany mety solafaka, miloloha lanitra mety ho lena
+- Raha ritra ny rano fasika sisa, raha vita ny trano fanaka sisa
 - 
 - Mpivaro-drano tratra orana
 - Ampongako no mihantona : raha manina aho, dobohako.
